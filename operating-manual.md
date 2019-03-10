@@ -95,7 +95,7 @@ I will listen. I won't be able to solve every problem that comes up, but I will 
 
 I will be prompt in my replies. My replies to email will be slower than replies to chat. My replies to chat will be slower than my replies to texts. So, if you really need an immediate response, a text message is entirely appropriate.
 
-I will be curious about your life outside of work and I will support you maintaining a healthy work/life balance. Life happens and I understand that. Life as an extrovert has given me the ability to be a bit of a social chameleon. You want to talks sport? I'm in. You want to talk fine wine? I'm in. If you want to talk about your favorite books. I'm in. I'm in because I'm interested in knowing what makes _you_ tick.
+I will be curious about your life outside of work and I will support you maintaining a healthy work/life balance. Life happens and I understand that. Life as an extrovert has given me the ability to be a bit of a social chameleon. You want to talk sports? I'm in. You want to talk fine wine? I'm in. If you want to talk about your favorite books. I'm in. I'm in because I'm interested in knowing what makes _you_ tick.
 
 ## My Influences
 
