@@ -1,6 +1,6 @@
 # Operations Manual/Leadership README for Patrick Berry
 
-I was inspired to do this by [Katie Womersley](https://medium.com/@kawomersley/why-and-how-to-share-your-manager-readme-plus-heres-mine-8a4fe188ee1b).
+I was inspired to do this by [Katie Womersley](https://medium.com/@kawomersley/why-and-how-to-share-your-manager-readme-plus-heres-mine-8a4fe188ee1b). Other folks feel [very strongly](https://twitter.com/skamille/status/1065301721637896194) that documents like these are a massive self-congradulatory waste of time. You will, of course, have your own opinion.
 
 ## My Leadership Philosophy
 
