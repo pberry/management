@@ -80,7 +80,7 @@ I believe that smart people with the right information will not only make the ri
 
 **What’s your favourite baked good?**
 
-- Chocolate chip cookies, but alas Type II Diabetes has made baked goods a no-no.
+- Chocolate chip cookies, but alas Type I Diabetes has made baked goods a no-no.
 
 
 ## My expectations of folks who report to me
